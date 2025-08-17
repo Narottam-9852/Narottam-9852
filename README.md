@@ -37,7 +37,7 @@ I enjoy working at the intersection of development and operations, where I can:
 
 ## 📫 Let’s Connect
 
-* 🔗 [LinkedIn](https://www.linkedin.com/) *(add your link)*
+* 🔗 [LinkedIn](https://www.linkedin.com/in/narottam-kumar-saw/)
 * 📧 **[narottamkumarsaw1999@gmail.com](mailto:narottamkumarsaw1999@gmail.com)**
 
 ---
